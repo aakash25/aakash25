@@ -8,4 +8,4 @@ I work on various technology stack such as C++, Java and JavaScript. I am also p
 - 📫 How to reach me: https://www.linkedin.com/in/aakash-tiwari-42822b54/
 - ⚡ Fun fact: I watch Big Bang Theory Everyday......
 - ⚽ I play 🏸 🏏
-🖖🏻🖖🖖
+- 🖖🏻🖖🖖 Star Trek and Star Wars Fan
